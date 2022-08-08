@@ -25,3 +25,7 @@ CSS 부족한 부분들 보완
 영상
 -------------
 
+
+https://user-images.githubusercontent.com/99931269/183391882-440ba376-095f-4d02-90c8-d1d5d96d43e7.mov
+
+
